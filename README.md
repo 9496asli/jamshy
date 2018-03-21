@@ -10,3 +10,4 @@ alavala patty
 chilaakaand podi
 
 phaa pattii
+dii korangi pattiiii
